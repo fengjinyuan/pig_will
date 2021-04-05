@@ -1,2 +1,2 @@
 # pig_will
-This is a will. If I leave the world，i will release the key to everyone.
+This is a will. If I leave the world，i will release the key to everyone. Maybe before that, I had a small fortune. I hope it can help those lucky people. The world is still there, I've traveled to the another world.
